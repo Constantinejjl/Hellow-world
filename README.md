@@ -1,1 +1,2 @@
-# Hellow-world
+#hellow jjl!
+#my nime is john.
